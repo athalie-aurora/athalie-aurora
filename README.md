@@ -3,7 +3,7 @@
 <h1 align="center">Hi 👋, I'm Athalie</h1>
 <h3 align="center">Technology Entusiast</h3>
 
-- 🍁 I’m currently learning on a learning journey in the world of **technology.**
+- 🍁 I’m currently on learning journey in the world of **technology.**
 
 - 👨‍💻 You can visit this site [athalies-site.webflow.io](athalies-site.webflow.io)
 
