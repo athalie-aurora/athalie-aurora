@@ -1,4 +1,4 @@
-# My_Dasboard
+# My Profile
 
 <h1 align="center">Hi 👋, I'm Athalie</h1>
 <h3 align="center">Technology Entusiast</h3>
