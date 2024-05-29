@@ -1,12 +1,6 @@
-# My Profile
-
-
-
-
-
 ୨୧ ⸝⸝𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃
 ![apm_BlackCrown](https://github.com/athalie-aurora/athalie-aurora/assets/119656945/933730dc-3c29-4bbb-b65d-137f2011166d)
-  𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃⸝⸝ ୨୧ 
+  𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃𓂃⸝⸝ ୨୧ 
 ![7bdbfd24bf6fa49f78eae93aaa473435](https://github.com/athalie-aurora/athalie-aurora/assets/119656945/7024def8-2cc3-4dde-a0a6-62cebf85a4a5) 
 
 ![bunteratai](https://github.com/athalie-aurora/athalie-aurora/assets/119656945/a171e264-ab4c-4fba-ae9e-a9deca9751e8)
